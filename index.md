@@ -7,3 +7,4 @@
 - [March 15, 2020 - _The Giving Tree_](https://twitter.com/joshgad/status/1239325531864096768)
 - [March 16, 2020 - _Hooray for Diffendoofer Day!_](https://twitter.com/joshgad/status/1239695916438700032)
 - [March 17, 2020 - _The True Story of the 3 Little Pigs_](https://twitter.com/joshgad/status/1240050512788983808)
+- [March 18, 2020 - _The Gruffalo_](https://twitter.com/joshgad/status/1240413234336641025)
