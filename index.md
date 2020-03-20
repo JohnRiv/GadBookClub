@@ -8,3 +8,6 @@
 - [March 16, 2020 - _Hooray for Diffendoofer Day!_](https://twitter.com/joshgad/status/1239695916438700032)
 - [March 17, 2020 - _The True Story of the 3 Little Pigs_](https://twitter.com/joshgad/status/1240050512788983808)
 - [March 18, 2020 - _The Gruffalo_](https://twitter.com/joshgad/status/1240413234336641025)
+- [March 19, 2020 - _Iggy Peck Architect_ (Part 1)](https://twitter.com/joshgad/status/1240786445574393856)
+- [March 19, 2020 - _Iggy Peck Architect_ (Part 2)](https://twitter.com/joshgad/status/1240787644096733185)
+- [March 19, 2020 - _Iggy Peck Architect_ (Part 3)](https://twitter.com/joshgad/status/1240788383254761473)
