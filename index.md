@@ -11,3 +11,4 @@
 - [March 19, 2020 - _Iggy Peck Architect_ (Part 1)](https://twitter.com/joshgad/status/1240786445574393856)
 - [March 19, 2020 - _Iggy Peck Architect_ (Part 2)](https://twitter.com/joshgad/status/1240787644096733185)
 - [March 19, 2020 - _Iggy Peck Architect_ (Part 3)](https://twitter.com/joshgad/status/1240788383254761473)
+- [March 20, 2020 - _The Bear and the Piano_](https://twitter.com/joshgad/status/1241137470051217408)
