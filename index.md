@@ -15,3 +15,4 @@
 - [March 21, 2020 - _Olivia and the Missing Toy_](https://twitter.com/joshgad/status/1241507584260976640)
 - [March 22, 2020 - _Olaf's Frozen Adventure_](https://twitter.com/joshgad/status/1241862246797430784)
 - [March 23, 2020 - _The Pea Patch Jig_](https://twitter.com/joshgad/status/1242232363297341440)
+- [March 24, 2020 - _Children Make Terrible Pets_](https://twitter.com/joshgad/status/1242594618656428032)
