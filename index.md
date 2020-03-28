@@ -17,3 +17,4 @@
 - [March 23, 2020 - _The Pea Patch Jig_](https://twitter.com/joshgad/status/1242232363297341440)
 - [March 24, 2020 - _Children Make Terrible Pets_](https://twitter.com/joshgad/status/1242594618656428032)
 - [March 26, 2020 - _Artemis Fowl, Chapter 1, Part 1_](https://twitter.com/joshgad/status/1243304301541249024)
+- [March 27, 2020 - _Happy Birthday To You!_](https://twitter.com/joshgad/status/1243674814717427712)
