@@ -21,3 +21,4 @@
 - [March 30, 2020 - _If I Built A School_](https://twitter.com/joshgad/status/1244761809732513793)
 - [March 31, 2020 - _The Rabbit Listened_](https://twitter.com/joshgad/status/1245133189493841920)
 - [April 1, 2020 - _The Remember Balloons_](https://twitter.com/joshgad/status/1245486139097534464)
+- [April 2, 2020 - _Rosie Revere Engineer_](https://twitter.com/joshgad/status/1245844931098202112)
