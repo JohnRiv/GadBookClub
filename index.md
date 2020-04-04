@@ -22,3 +22,4 @@
 - [March 31, 2020 - _The Rabbit Listened_](https://twitter.com/joshgad/status/1245133189493841920)
 - [April 1, 2020 - _The Remember Balloons_](https://twitter.com/joshgad/status/1245486139097534464)
 - [April 2, 2020 - _Rosie Revere Engineer_](https://twitter.com/joshgad/status/1245844931098202112)
+- [April 3, 2020 - _Artemis Fowl, Chapter 1, Part 2_](https://twitter.com/joshgad/status/1246226018114760704)
