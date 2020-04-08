@@ -24,3 +24,4 @@
 - [April 2, 2020 - _Rosie Revere Engineer_](https://twitter.com/joshgad/status/1245844931098202112)
 - [April 3, 2020 - _Artemis Fowl, Chapter 1, Part 2_](https://twitter.com/joshgad/status/1246226018114760704)
 - [April 6, 2020 - _Waiting Is Not Easy_](https://twitter.com/joshgad/status/1247300719654232065)
+- [April 7, 2020 - _The Day The Crayons Came Home_](https://twitter.com/joshgad/status/1247663770077298689)
