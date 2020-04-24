@@ -30,3 +30,4 @@
 - [April 13, 2020 - _I'm Bored_](https://twitter.com/joshgad/status/1249828019062992896)
 - [April 14, 2020 - _Beekle_](https://twitter.com/joshgad/status/1250203656206471169)
 - [April 21, 2020 - _What Pet Should I Get?_](https://twitter.com/joshgad/status/1252752618612338688)
+- [April 23, 2020 - _Harry Potter and the Chamber of Secrets: The Dueling Club_](https://twitter.com/joshgad/status/1253463169021837317)
